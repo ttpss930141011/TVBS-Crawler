@@ -11,6 +11,8 @@ https://supertaste.tvbs.com.tw/
 
 直男們可以看一下有助於交女朋友
 
+不然看有些人在群聊自嗨氣氛都尷尬到我不敢直視ㄏ阿哈哈哈
+
 TVBSeat5() 和 TVBStravel6()
 
 是用Google特定搜尋去搜各個縣市的美食 與 旅遊
